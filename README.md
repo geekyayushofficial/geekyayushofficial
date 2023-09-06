@@ -1,4 +1,4 @@
-### Hi there, I'm Ayyush Raj 👋
+### Hi there, I'm Ayush Raj 👋
 
 🚀 I'm a Full Stack Web Developer who is passionate about embracing the world of Data Science, Machine Learning, and Ethical Hacking to solve real-world challenges, all while nurturing a dream of entrepreneurship.Embracing the world of Data Science, Machine Learning, and Ethical Hacking to solve real-world challenges, all while nurturing a dream of entrepreneurship.Embracing the world of Data Science, Machine Learning, and Ethical Hacking to solve real-world challenges, all while nurturing a dream of entrepreneurship.. I enjoy working on challenging projects and am always eager to learn and explore new things.
 
